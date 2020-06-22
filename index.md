@@ -13,3 +13,6 @@ Artemis Fowl in a young guy in his puberty who lives in Great Britain. He is the
 * a lot of money and resources to his avail
 * in puberty
 * anti-social/poor social intelligence
+
+
+> Butler, go!!
